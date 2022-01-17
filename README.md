@@ -1,0 +1,2 @@
+# menikmati
+Banyak bersyukur
